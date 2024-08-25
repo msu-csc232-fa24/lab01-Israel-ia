@@ -1,1 +1,1 @@
-my name is israel
+Hello, my name is Amponsah Israel Gyabaah. I'm from ghana,
